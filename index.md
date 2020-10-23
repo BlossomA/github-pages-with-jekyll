@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to UrbanProBeauty
 
-I'm glad you are here. I plan to talk about ...
+where your inner beauty is all that matters to us
